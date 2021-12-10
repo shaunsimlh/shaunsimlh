@@ -6,5 +6,5 @@ Hello there 👋
 - 💬 Ask me about Chinese Chess.
 - 📫 How to reach me: LinkIn
 - 😄 Pronouns: "Hope" is the strength to carry on.
-- ⚡ Fun fact: Peoplew keep sending me Tik Tok video even I told them stop doing that.
+- ⚡ Fun fact: Peoples keep sending me Tik Tok video even I told them stop doing that.
 
