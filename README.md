@@ -3,7 +3,6 @@ Hello there 👋
 - 🔭 I’m currently working on Apprenticeship.
 - 🌱 I’m currently in "Microsoft Cloud Support and DevOps" boot camp.
 - 👯 I’m looking to collaborate on pooling.
-- 🤔 I’m looking for help with Financial Freedom.
 - 💬 Ask me about Chinese Chess.
 - 📫 How to reach me: LinkIn
 - 😄 Pronouns: "Hope" is the strength to carry on.
